@@ -1,0 +1,2 @@
+# Konspekt_Danila.Kotsalainen_ITKpv25_2
+Konspekt
